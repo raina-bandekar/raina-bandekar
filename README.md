@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+No previous coding experience.
+I want to learn about computers and coding. 
+Science, math, research. 
+Learn more complex code, code a video game, learn about using code in research. 
